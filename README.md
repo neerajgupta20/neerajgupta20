@@ -2,7 +2,7 @@
 
 👀 I’m interested in Web Development
 
-🌱 I’m currently learning new technologies
+🌱 I am currently learning new technologies and studying Python to improve my programming skills.
 
 📫 Reach me through my LinkedIn:- https://www.linkedin.com/in/neeraj-gupta-9b40bb228/
 
