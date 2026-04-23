@@ -1,5 +1,5 @@
-ShrutiSangwan07/README.md
-👋 Hi, I’m Shruti
+👋 Hi, I’m Neeraj Gupta
+
 👀 I’m interested in Web Development
 🌱 I’m currently learning new technologies
 📫 Reach me through my LinkedIn:- https://www.linkedin.com/in/shruti-6331a6211/
