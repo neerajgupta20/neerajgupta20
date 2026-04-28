@@ -13,6 +13,6 @@
 -📚 Bachelor of Computer Applications (BCA)
 Makhanlal Chaturvedi National University of Journalism and Communication, Bhopal (Graduated in 2024.)
 
--📬 Contact: Email: neerajgupta1052@gmail.com LinkedIn: (https://www.linkedin.com/in/neeraj-gupta-9b40bb228/) WordPress:https://neerajgupta20.wordpress.com/ Portfolio:https://neerajgupta20.wordpress.com/ Portfolio: https://neerajgupta20.github.io/Portfolio/
+-📬 Contact: Email: neerajgupta1052@gmail.com LinkedIn: (https://www.linkedin.com/in/neeraj-gupta-9b40bb228/) WordPress Portfolio:https://neerajgupta20.wordpress.com/  Portfolio: https://neerajgupta20.github.io/Portfolio/
 
 -🌟 Let's create something amazing! I'm always here to be looking forward to exciting projects, collaborations, and discussions about the latest tech trends. Feel free to connect!
